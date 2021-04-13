@@ -5,7 +5,7 @@
 
 Universität Kassel / FB 05\
 Dozent: [Felix Werthschulte, M. A.](mailto:felix.werthschulte@uni-kassel.de)
-2. Sitzung
+Sitzung 2
 
 ---
 
